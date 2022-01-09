@@ -1,2 +1,2 @@
-# notes_from_the_trench
+# Notes from the trench
 Random doodles
